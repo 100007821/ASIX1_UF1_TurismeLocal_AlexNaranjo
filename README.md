@@ -1,1 +1,0 @@
-# ASIX1_UF1_TurismeLocal_AlexNaranjo
